@@ -8,3 +8,4 @@
 坚持就是胜利！ edit by zxlEx
 加油，终点就快到了！
 学无止境，终身受益！
+行百里者半九十！ edit by zxl15036 in vscode
